@@ -48,3 +48,8 @@ https://financial.tripreceipts.com/<br>
 https://lenses.proheroeyewear.com/<br>
 https://landscape.ambientinformatica.com.br/<br>
 https://cdn.masonic-lodge.ca/<br>
+https://algebra.morrisis.net/<br>
+https://pro.minoa.cat/<br>
+https://tutor.phyorealty.com/<br>
+https://algebra.ruiz-tagle.com/<br>
+https://band.kuztsudio.com/ <br>

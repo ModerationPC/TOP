@@ -37,6 +37,14 @@ https://int.adepoju.org/<br>
 https://i.businessrelay.co.za/<br>
 https://photography.backriverphotography.com/<br>
 https://e.d.2of1.org/<br>
-https://kazw.net/
-https://math.kazw.net/
-https://cloudflare.rammerhead.org/
+https://kazw.net/<br>
+https://math.kazw.net/<br>
+https://cloudflare.rammerhead.org/<br>
+https://green.frogs.toadville.org/<br>
+https://health.us.betal.org/<br>
+https://community.sunday.glenwaverleychurches.org/<br>
+https://1.burgermap.org/<br>
+https://financial.tripreceipts.com/<br>
+https://lenses.proheroeyewear.com/<br>
+https://landscape.ambientinformatica.com.br/<br>
+https://cdn.masonic-lodge.ca/<br>

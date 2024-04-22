@@ -37,3 +37,6 @@ https://int.adepoju.org/<br>
 https://i.businessrelay.co.za/<br>
 https://photography.backriverphotography.com/<br>
 https://e.d.2of1.org/<br>
+https://kazw.net/
+https://math.kazw.net/
+https://cloudflare.rammerhead.org/
